@@ -2,7 +2,7 @@
 
 
 
-🚀[Visit the Website](https://woutdln.github.io/DCHM-template/) 
+🚀[Visit the Website](https://woutdln.github.io/DCHM-template/)🚀
 
 Digitising cultural heritage material: Anteckningar om Kristdala socken i Tunaläns härad och Kalmar län (1900).
 
